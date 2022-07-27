@@ -1,2 +1,5 @@
-# chandrapal-singh-
-Hi 
+# chandrapal-singh- 
+Only study 
+Indian army./
+cpsingh ./
+
