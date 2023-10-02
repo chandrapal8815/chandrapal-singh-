@@ -1,5 +1,3 @@
-# chandrapal-singh- 
-Only study 
-Indian army./
-cpsingh ./
+hydra tool password cracker 
+
 
